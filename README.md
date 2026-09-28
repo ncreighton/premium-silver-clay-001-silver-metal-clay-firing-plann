@@ -1,0 +1,2 @@
+# premium-silver-clay-001-silver-metal-clay-firing-plann
+Tired of cracking, melting, or under-firing your silver metal clay pieces because your firing notes are scattered across sticky notes and sketchbooks?  The Silver Metal Clay Firing Planner is the first Notion template designed exclusively for the unique firing needs of silver metal clay artists. It centralizes every firing schedule, kiln log, and p
